@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **faisalmirji@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 
 
